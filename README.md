@@ -1,6 +1,8 @@
 # hexCodderTeach
 
-But we were to do more Changes!
+
+But theese are changeI Like to do more Changes!
+
 
 there are changes!
 
